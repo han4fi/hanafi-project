@@ -1,0 +1,1 @@
+daftar ini untuk blogku
